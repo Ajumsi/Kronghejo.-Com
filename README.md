@@ -1,1 +1,1 @@
-# Kronghejo.-Com
+# Kronghejo.com
